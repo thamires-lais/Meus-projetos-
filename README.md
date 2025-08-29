@@ -22,4 +22,4 @@
 ---
 
 ## Contato
-[LinkedIn](https://www.linkedin.com/in/thamires-la%C3%ADs-costa-santos-7223aa305?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=ios_app) | [Email](mailto:thamireslais.costa@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/thamires-la%C3%ADs-costa-santos-7223aa305)|Email](mailto:thamireslais.costa@gmail.com)
